@@ -1,0 +1,1 @@
+Hi everyone! My name is Anna and I am a Bedford Academy high school student.
